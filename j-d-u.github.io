@@ -1,1 +1,0 @@
-/Users/john/blog/j-d-u.github.io
